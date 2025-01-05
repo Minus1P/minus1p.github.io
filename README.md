@@ -1,5 +1,5 @@
 
-![ab67616d0000b2731ea0c62b2339cbf493a999ad](https://github.com/user-attachments/assets/9cbb9fad-d26b-40e3-96c6-d9d2a7bc9e77)
+![ab67616d0000b2731ea0c62b2339cbf493a999ad](https://github.com/user-attachments/assets/c1324199-ed0f-41d2-88d6-220010980ad1)
 
 # Apăsați pe textul albastru pentru a vedea mai multe informații. 
 # Un share pe Instagram ne-ar ajuta enorm <3
