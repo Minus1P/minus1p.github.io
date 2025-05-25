@@ -66,7 +66,7 @@ Un lucru important, dacă se ajunge să fie cercetat, e să se verifice dacă ma
 
 Dorim să mulțumim mai multor persoane care ne-a ajutat și au avut încredere să ne furnizeze informații! În primul rând profesorilor pentru susținerea noastră și a detaliilor oferite, unui agent care ne-a ajutat cu câteva sfaturi legate de anonimizare/legi, unor cunoscuți din lumea media, colegelor care au vorbit despre faptele profesorului și celor care ne-au împins spre a face demersul. NU dorim să avem de-a face cu acest caz, cunoscând alte situații și știind ”cum se face legea în românia”, așa că am ales să nu riscăm, să oferim datele și de aici să se sesizeze organele competente.
 
-<a href="https://imgur.com/a/WMICS0a">colaj cu alte prostii zise</a> + <a href="https://jumpshare.com/s/mqXN6o8TNeeYsOrEVlas">trist</a>
+<a href="https://imgur.com/a/WMICS0a">colaj cu alte prostii zise</a> + <a href="https://jumpshare.com/s/mqXN6o8TNeeYsOrEVlas">trist</a> + <a href="https://imgur.com/a/Knj3Qme"> negru pe alb</a>
 
 # <a href="https://anes.gov.ro/call-center/">O viață trăită în frică nu este viață!</a> + <a href="https://github.com/user-attachments/assets/e29eeba8-eff9-4c81-9868-8e0a9fb52931">haz de necaz</a>
 
