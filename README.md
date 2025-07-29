@@ -3,10 +3,11 @@
 
 # Apăsați pe textul albastru pentru a vedea mai multe informații. 
 # Un share pe Instagram ne-ar ajuta enorm <3
+## UPD1: Am văzut că se știe identitatea lui <b>Bogdi</b>, chiar și fără să amintim noi. Atunci nu mai e nimic de ascuns :) pt reclamări sau comunicare: proiecturs@keemail.me. Nu garantăm răspuns, proiectul e de un an.
 
 ## Cine suntem și de ce facem asta?
 
-Suntem un grup de fete din zona Beclean care considerăm necesară alertarea opiniei publice cu privire la acțiunile grave și inacceptabile ale unui individ identificat ca groomer, prădător sexual și hărțuitor <a href="https://ibb.co/album/D5BV6h">(între timp am găsit și altul)</a>, care locuiește în județul Cluj. Mânzul, pentru cei care nu știu, activează ca profesor suplinitor în orașul Beclean și a fost implicat în abordări inadecvate, inclusiv solicitări de natură sexuală, adresate elevilor minori și altor persoane din comunitate. Deși a fost raportat atât instituțiilor școlare, cât și autorităților polițienești (printr-un dosar penal existent), consecințele au fost minimizate, iar deobicei victimele de așa speță au fost descurajate să continue demersurile legale.
+Suntem un grup de fete din zona Beclean care considerăm necesară alertarea opiniei publice cu privire la acțiunile grave și inacceptabile ale unui individ identificat ca groomer, prădător sexual și hărțuitor <a href="https://ibb.co/album/D5BV6h">(între timp am găsit și altul)</a>, care locuiește în județul Cluj. <b>Mânz</b>ul, pentru cei care nu știu, activează ca profesor suplinitor în orașul Beclean și a fost implicat în abordări inadecvate, inclusiv solicitări de natură sexuală, adresate elevilor minori și altor persoane din comunitate. Deși a fost raportat atât instituțiilor școlare, cât și autorităților polițienești (printr-un dosar penal existent), consecințele au fost minimizate, iar deobicei victimele de așa speță au fost descurajate să continue demersurile legale.
 
  • O colegă de la (poate 👀) alt liceu a depus anterior plângere pentru hărțuire sexuală și contact fizic neconsimțuit (groping), însă a fost disuadată atât de conducerea liceului, cât și de reprezentanții poliției. Având în vedere lipsa de cooperare din partea autorităților, precum și riscul de represalii și hărțuire continuă (inclusiv amenințări primite), am ales să nu ne expunem identitățile public. Acest demers are scopul de a proteja siguranța victimelor și de a evita escaladarea situației. 
 
