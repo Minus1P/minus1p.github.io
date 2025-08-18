@@ -3,7 +3,7 @@
 
 # Apăsați pe textul albastru pentru a vedea mai multe informații. 
 # Un share pe Instagram ne-ar ajuta enorm <3 
-## UPD1: Am văzut că se știe identitatea lui <b>Minzat Radu Bogdan, de la Liceul Tehnologic Agricol Beclean</b>, chiar și fără să amintim noi. Atunci nu mai e nimic de ascuns :) pt reclamări sau comunicare: proiecturs@keemail.me. Nu garantăm răspuns, proiectul e de un an. More coming :)
+## UPD1: Am văzut că se știe identitatea lui <b>Bogdi</b>, chiar și fără să amintim noi. Atunci nu mai e nimic de ascuns :) pt reclamări sau comunicare: proiecturs@keemail.me. Nu garantăm răspuns, proiectul e de un an. More coming :)
 
 ## Cine suntem și de ce facem asta?
 
