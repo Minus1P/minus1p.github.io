@@ -5,6 +5,12 @@
 # Un share pe Instagram ne-ar ajuta enorm <3 
 ## UPD1: Am văzut că se știe identitatea lui <b>Minzat Radu Bogdan, din Jichisu De Jos, jud CJ</b>, chiar și fără să amintim noi. Atunci nu mai e nimic de ascuns :) pt reclamări sau comunicare: proiecturs@keemail.me. Nu garantăm răspuns, proiectul e de un an. 
 
+https://www.facebook.com/minzat.radu
+https://www.instagram.com/bogdanmrb/
+
+La cerere, oferim toate informațiile, locație, CNP, buletin, luate de poliție.
+
+
 ![Image](https://github.com/user-attachments/assets/cb389b05-f006-4de1-92d0-527744df5bf9)
 
 ## Cine suntem și de ce facem asta?
